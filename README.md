@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @denger8429
 - 👀 I’m interested in ...crypto
 - 🌱 I’m currently learning ...staking mining 
-- 💞️ I’m looking to collaborate on ...on hold
-- 📫 How to reach me ... in that
+- 💞️ I’m looking to collaborate on ...cm, modereter
+- 📫 How to reach me .. on twitter link in bio
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
