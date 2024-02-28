@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...staking mining 
 - 💞️ I’m looking to collaborate on ...cm, modereter
 - 📫 How to reach me .. on twitter link in bio
-- 😄 Pronouns: ...
+- 😄 Pronouns: dm
 - ⚡ Fun fact: my github is new not me 
 
 <!---
