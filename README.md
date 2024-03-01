@@ -1,6 +1,6 @@
 - 👋 Hi, I’m saeedurrahman
 - 👀 I’m interested in ...crypto coding 
-- 🌱 I’m currently learning ...staking mining 
+- 🌱 I’m currently learning ...staking & mining 
 - 💞️ I’m looking to collaborate on ...cm, modereter
 - 📫 How to reach me .. on twitter link in bio
 - 😄 Pronouns: dm
