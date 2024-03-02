@@ -1,4 +1,5 @@
 - 👋 Hi, I’m saeedurrahman
+- from india
 - 👀 I’m interested in ...crypto coding 
 - 🌱 I’m currently learning ...staking & mining 
 - 💞️ I’m looking to collaborate on ...cm, modereter
