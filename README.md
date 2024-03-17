@@ -5,7 +5,7 @@
 - 💞️ I’m looking to collaborate on ...cm, modereter
 - 📫 How to reach me .. on twitter link in bio
 - 😄 Pronouns: hhg
-- ⚡ Fun fact: my github is new not me  
+- ⚡ Fun fact: my github is new not me  klk
 hay guys i am learning about coding
 <!---vx 
 denger8429/denger8429 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
