@@ -1,4 +1,4 @@
-gk- 👋 Hi, I’m saeedurrahman
+- 👋 Hi, I’m saeedurrahman
 - from india
 - 👀 I’m interested in ...crypto coding 
 - 🌱 I’m currently learning ...staking & mining 
