@@ -11,5 +11,4 @@ denger8429/denger8429 is a ✨ special ✨ repository because its `README.md` (t
 You can click the Preview link to take a look at your changes.
 --->
   ha  yes to me
-saeedurrahmam ansari indiani love to me 
-tere  mne me kya chal raha hai
+saeedurrahmam ansari indian I love to me 
